@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @2100031483
+- 👋 Hi, I’m @Praveen10m
 - 👀 I’m interested in New Tech
 - 🌱 I’m currently learning Computer Science
 - 💞️ I’m looking to collaborate on Anyting Intresting 🤩
